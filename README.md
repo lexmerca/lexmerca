@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @lexmerca
+👋 Hi, I’m @lexmerca
 
 http://www.lexmerca.com
